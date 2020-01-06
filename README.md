@@ -1,1 +1,0 @@
-# sandz-onboarding
